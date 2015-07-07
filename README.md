@@ -1,1 +1,0 @@
-# trisharmena.github.io
